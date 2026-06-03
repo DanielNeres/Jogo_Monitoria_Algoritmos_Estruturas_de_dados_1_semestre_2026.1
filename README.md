@@ -1,0 +1,1 @@
+# Jogo_Monitoria_Algoritmos_Estruturas_de_dados_1_semestre_2026.1
